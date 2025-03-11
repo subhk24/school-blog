@@ -1,0 +1,1 @@
+Technology is moving fast, with AI, 5G, and quantum computing changing how we work and connect. At the same time, blockchain and cybersecurity are making data safer. These trends are shaping the future in ways we’re just beginning to see.
